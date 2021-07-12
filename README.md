@@ -2,5 +2,6 @@
 Hello yomi !
 how do you do?
 
-to 
+to be a goat is to be a god
+djcjcxmmxmxmmxxmxmxmxmxmxmxkdfujejeddkkdkmdnndndnmddmddxx,x,x,x,x,x,xxxxxx
 
